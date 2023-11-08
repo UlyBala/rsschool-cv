@@ -1,1 +1,1 @@
-# rsshcool-cv
+https://ulybala.github.io/rsschool-cv/
